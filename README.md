@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @TorbenHellriegel
-- 👀 I’m interested in Games, Anime, Music
+- 👀 I’m interested in Games, Anime, Music, Sport
 - 🌱 I’m currently learning Unity
 - 💞️ I’m looking to collaborate on nothing particular at the moment
 - 📫 How to reach me torbenhellriegel@gmail.com
